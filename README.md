@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MartiSidro
+- 📚 Organic Chemistry PhD student at the University of Barcelona/IRB Barcelona
+- 👀 I’m interested in Organic Chemistry
+- 📫 How to reach me martisidro2000@gmail.com
+- 😄 Pronouns: He/Him
